@@ -1,0 +1,1 @@
+Atm I'm at 92% but doing nothing since I went with dad at the school, they said to me I'll have to wait till January
