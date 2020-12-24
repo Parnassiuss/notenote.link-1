@@ -1,0 +1,2 @@
+https://www.markdownguide.org/getting-started/#how-does-it-work a guide to markdown i've been using
+Is a type of file that helped me get into coding and scripting and stuff like github so thanks obsidian and zettlekasten
